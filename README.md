@@ -19,7 +19,7 @@
 
 ## 🌐 Digital Presence
 
-- 📚 [LinkedIn](www.linkedin.com/in/akinyemi-solomon-1a4a199b)
+- 📚 [LinkedIn]www.linkedin.com/in/akinyemi-solomon-1a4a199b)
 
 
 - 🚀 **National Income Accounting Model in Nigeria (2018):** Published a statistical model exploring national income accounting in Nigeria.
